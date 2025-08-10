@@ -1,1 +1,1 @@
-# first_project
+# I am aspiring developer, I am passionate about creating innovative solutions though code and continuously expanding my technical skills. I enjoy tackling challenges, learning new technologies, and building projects that solve real-world problems. With a growth mindset and love for collaboration, I aim to contribute to meaningful projects while growing as a versatile and skilled developer in the ever-evolving tech landscape.
